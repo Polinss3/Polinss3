@@ -13,7 +13,7 @@
 
 - 💻 All of my projects are available at [currentlly working on it](currentlly working on it)
 
-- 📫 How to reach me **pablobrasero@gmail.com**
+- 📫 I can be reached in **pablobrasero@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
